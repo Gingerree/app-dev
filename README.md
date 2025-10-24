@@ -16,7 +16,7 @@
 5. MUNDO by [IV OF SPADES](https://youtu.be/omFa4Yk9Fmg?si=D6SuEpwk_unqeBpQ)
 
 ---
-### About the songs I listen to
+### About the songs I listen to 🎧
 
 - [ ] I listen mostly male artists 🎤
 - [ ] I love their song vibes ❤️
